@@ -1,1 +1,1 @@
-kunchala Brahma Teja 1215 w university point appartments apt30
+kunchala Brahma Teja 1215 w university point appartments apt30 
